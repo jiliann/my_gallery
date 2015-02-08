@@ -1,1 +1,1 @@
-This is my gallery losers!
+This is my gallery.
